@@ -12,7 +12,7 @@
 
 😄 Pronombres: Él
 
-⚡ Dato curioso: Estoy equilibrando mis estudios de Ingeniería Informática, trabajando en proyectos personales y mezclando música. Mi objetivo de vida es vivir al menos 3 meses en la mayoría de las capitales europeas. ¡Espero poder lograrlo!
+⚡ Dato curioso: Mi objetivo de vida es vivir al menos 3 meses en la mayoría de las capitales europeas. ¡Espero poder lograrlo!
 
 📌 Más sobre mí:
 
